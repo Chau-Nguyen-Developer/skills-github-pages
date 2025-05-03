@@ -1,3 +1,11 @@
+---
+title: "REMINISCE-MY-FIRST-NEW-YORK-TRIP"
+date: 2025-05-02
+---
+<br>
+
+**05/02/2025**  
+
 I was honored to join the National Model United Nations team (NMUN) for Cal Poly Pomona in Spring 2025. It was my first time travelling far (to the other coast of the USA!) and visiting New York City with my classmates and professor as well as competing for something that is larger than myself. The program expanded my extracurricular experience tremendously and provided an excellent opportunity for me to practice research, writing, public speaking, and teamwork skills. At the Model UN conference, we and other schools’ teams went through the simulation of a real session of the United Nation, where countries negotiated solutions to solve problems in the real world. Our team got the chance to act as delegates from Mexico this year, and throughout the semester, we researched how to best represent Mexico’s stance in the international platform. I got chance to participated in General Assembly 2, where I did research on how Mexico has collaborated with regional and international organizations to close the finance gap and reach the more sustainable goals in 2030. After the trip and reading a lot of papers, I personally have had grown my love for this planet and sought ways to preserve it, as I indeed want to save the best for my next future generations. Now, I no longer feel dreaded when I have to go back to turn off the lights that I forgot earlier, removing the labels and recycling bottles, or wearing again clothes that are still good. I choose to consume less and do it more responsibly with a delighted heart, as now I want to reduce trash production and not waste energy in my best effort.  
 
 Besides academic, I learned a lot how to travel and work well with teammates: show up at the air port on time, check out the hotel on time, go to bed early and have a good sleep, get up early and have breakfast, show up early to get seat at the front row, be engaged, stay focus, ask questions when confused, smile more, life is too short for not being happy. I also realized that kindness goes a long way. Be more forgiven, 
