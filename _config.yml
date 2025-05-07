@@ -1,4 +1,7 @@
 theme: minima
 title: A ghostwriter | My Secret Garden
 description: A playground to pratice Github Pages
+relative_links:
+  enabled: true
+  collection: true
 author: Chau Nguyen Developer
